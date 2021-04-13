@@ -1,7 +1,9 @@
-Not my main account. 
+# Not my main account. 
 
 Following me on:
 
 https://www.linkedin.com/in/cristiano-coelho-assis/
+
 https://github.com/cristianoccazinsp/
+
 https://bitbucket.org/hharry/
