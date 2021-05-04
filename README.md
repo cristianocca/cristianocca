@@ -1,4 +1,4 @@
-# Not my main account. 
+# Personal Account. 
 
 Following me on:
 
